@@ -2,6 +2,6 @@
 
 Team Members Name:
 
-Meenu Tomar
-Drashti Chopda
+Meenu Tomar -
+Drashti Chopda -
 Arpan Chaudhary
